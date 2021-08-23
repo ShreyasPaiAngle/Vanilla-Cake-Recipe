@@ -1,0 +1,1 @@
+1.5 cups of sifted all purpose flour, 1.5 tsp baking powder, 1/4 tsp salt, 1/2 cup unsalted butter, 1 cup sugar, 2 large eggs, 1 teaspoon vanilla extract, 1/2 cup whole milk, 1 tsp baking soda.
